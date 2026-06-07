@@ -1,0 +1,1 @@
+# Aplikasi-Administrasi-Guru-Kelas-7-SMPN-2-Ganeas-
